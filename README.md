@@ -1,5 +1,5 @@
-Hola, todo bien.  Mi nombre es Carlos Andrés 
-Sobre Mí
+Hola, todo bien.  Mi nombre es Carlos Andrés bello
+
 
 En mi día a día busco un equilibrio entre la energía, la disciplina y la calma mental. Apasionado del fútbol ⚽ por el trabajo en equipo y la estrategia, dedico también mi tiempo libre al ejercicio físico para fortalecer la constancia y la resistencia.
 
